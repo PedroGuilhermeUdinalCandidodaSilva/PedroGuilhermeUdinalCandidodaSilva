@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Pedro Guilherme Udinal Cândido da Silva!
+- 👀 I’m interested in exploring creative and innovative tech solutions.
+- 🌱 I’m currently learning new programming languages and modern frameworks.
+- 💞️ I’m looking to collaborate on open-source projects that make a real impact and promote inclusion.
+- 📫 How to reach me: LinkedIn:https://www.linkedin.com/in/pedro-guilherme-udinal-candido-da-silva-8053022b0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love solving complex challenges with simplicity!
